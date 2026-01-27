@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/d872ff73-60f2-4f43-8b30-695c3028a557)  
-/ˈnɔk.si/ 
+/ˈnɔk.si/   
 EN/日本語
 
 lock in lock in lock in
