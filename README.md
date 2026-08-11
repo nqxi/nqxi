@@ -1,7 +1,8 @@
 ![image](https://github.com/user-attachments/assets/d872ff73-60f2-4f43-8b30-695c3028a557)  
 
 current interests include: algorithms, mechanistic interpretability, agentic workflows, philosophy  
-open to opportunities, feel free to reach out: ctmanzo3 <at> icloud.com
+open to opportunities, feel free to reach out: ctmanzo3 \<at> icloud.com
+***
 <!---
 
 
